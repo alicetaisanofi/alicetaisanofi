@@ -1,3 +1,1 @@
 - 👋 Hi, I’m Alice Tai @alicetaisanofi
-- 👀 I’m interested in traveling, exploring different cuisines, and learning cultures
-- ⚡ Fun fact: I could eat sushi 🍣 every day and never get tired of it.
